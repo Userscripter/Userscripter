@@ -1,0 +1,2 @@
+- @Userscripter
+- Coding #AntiHacks for games, and maybe even some types of hotkeys, which DO NOT count as hacking. #AntiHax moomoo.io
